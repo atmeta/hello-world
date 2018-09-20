@@ -3,4 +3,4 @@ My first repository
 
 So hello.
 
-Last Saturday I was at a wedding - it was so much fun. Hahah. So much fun.
+My head is a soft mushroom - feeling the dust of the forrest floor gathering on my smooth forehead. 
